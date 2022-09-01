@@ -1,5 +1,3 @@
-join discord.gg/catcha
+join HTTPS://discord.gg/catcha
 
 THIS TOOL IS FOR DEVS ONLY--> NO SUPPORT
-
-Enjoy skiding :P
